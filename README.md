@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mxxrci
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning java,python,batch
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me Mxrci#2898
