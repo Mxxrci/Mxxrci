@@ -1,4 +1,2 @@
 - 👋 Hi, I’m @Mxxrci
-- 👀 I’m interested in coding
-- 🌱 I’m currently learning java,js 
 - 📫 How to reach me Discord: mxxrci
